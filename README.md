@@ -21,12 +21,14 @@ I started the second induction day with Guru's blessing from College's gurudwara
 #### At 9:00 AM,
 We attended Lecture by Dr.Priya Darshni Madam On " Universal Human Values" at Auditorium. Madam taught us about the real meaning of happiness in our life which was always ignored in our daily life.
 At 11:00 AM we listened to the Dr. Arvind Dhingra (Director of STEP & Incharge of TAC). It was a great leacture.
-From 12:30 PM to 1:30 PM we Had Lunch break 
+From 12:30 PM to 1:30 PM we Had Lunch break.
 After that at 1:30 we had profiency test of English And Mathematics which was conducted by our seniors, our seniors were very supportive and cooperative
 the test goes till 3:30 PM After that we leaved college for homes, and the day ended.
 
 ## DAY 3 (04-08-2025)
-The third day started at 8:30 AM with a session in Auditorium by "Causmic Club" the club which managed all the event till last of Induction program. After that there was a lecture by Dr. Randhir Singh on the "Conduct of Examination". Dr. Randhir Singh Sir has very positive Attitude, we come to know abouty them from our seniors about their attitude and positive thought process.
+The third day started at 8:30 AM with a session in Auditorium by "Causmic Club" the club which managed all the event till last of Induction program. 
+![image alt]()
+After that there was a lecture by Dr. Randhir Singh on the "Conduct of Examination". Dr. Randhir Singh Sir has very positive Attitude, we come to know about them from our seniors about their attitude and positive thought process.
 From 10:30 AM to 12:30 PM We attended lecture by Dr. Priya darshni madam on "Universal human Values" It was their second lecture to us 
 After These lectures We had some lunch break time. in that we explored college campus.
 From 1:30 to 3:30 PM we had our subject lectures then the day Offs.
