@@ -55,4 +55,4 @@ After that a lecture by Dr. jasvir Singh grewal started with Soothing keertan an
 ![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/e192cfa56f1d6d063c29862c5fa9810867edb5b3/20250807_144249.jpg)
 It make calm everyones mind sitting there. As due to shortage of time Sir skipped their Presentation instead they talked openly with us about the importance of NSS which was even more underastandable. Even though itv was less time with them but we liked their way of coveying message. We also listened about them from seniors about their postive attitude and spirtuality. Then their students played a funny short skit which was very enjoyable, the Whole Auditorium laughed and enjoyed their performace.
 
-## DAY 7 ()
+
