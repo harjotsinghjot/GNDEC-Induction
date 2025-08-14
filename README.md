@@ -11,7 +11,8 @@ There Dr. Harpreet Kaur Grewal, HoD of Applied Sciences, opened the session with
 Dr. Sehijpal Singh, Principal of the institute, highlighted GNDEC's academic strengths and the importance of embracing opportunities during college life and then
 The Chief Guest, Maheshinder Singh Grewal, Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust, inspired students with his words on discipline, purpose, and the founding vision of the college.
 It was a Great event, most appreciation goes to the club members and ground level workers. 
-At 12:30 PM we got lunch break till 1:30 PM. In that time I met with my seniors and cousins. we spent a quality time together.
+At 12:30 PM we got lunch break till 1:30 PM. In that time I met with my seniors and cousins. we spent a quality time together and explored the building and blocks 
+![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/fa309219a293f48a7918121d4504c517c0f727bb/Snapchat-1678109231.jpg)
 Then At 1:30 PM we were shown workshops, Labs as well as Classrooms according to our branches by Dr. Jasvir Singh Grewal.
 Afterall that our first induction day ended approximately at 4:00 PM with greetings from teachers and professors 
 It was a memorable day for me
