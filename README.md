@@ -1,5 +1,5 @@
 # GNDEC-Induction
-I am Harjot Singh and this is my report about my induction days in Guru Nanak Dev Engineering College Commonly known as GNDEC.
+I am Harjot Singh from Mechanical Engineering branch of Batch 2025, writting this report about my induction days in Guru Nanak Dev Engineering College Commonly known as GNDEC.
 ## DAY 1 (30-07-2025)
 The Induction program started with warm blessings of Almighty.
 #### At 8:30 AM, 
