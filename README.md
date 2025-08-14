@@ -27,7 +27,7 @@ the test goes till 3:30 PM After that we leaved college for homes, and the day e
 
 ## DAY 3 (04-08-2025)
 The third day started at 8:30 AM with a session in Auditorium by "Causmic Club" the club which managed all the event till last of Induction program. 
-![image alt]()
+![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/ce901012a93e5eb1c3a4389204a646fe3744d885/Snapchat-1119349849.jpg)
 After that there was a lecture by Dr. Randhir Singh on the "Conduct of Examination". Dr. Randhir Singh Sir has very positive Attitude, we come to know about them from our seniors about their attitude and positive thought process.
 From 10:30 AM to 12:30 PM We attended lecture by Dr. Priya darshni madam on "Universal human Values" It was their second lecture to us 
 After These lectures We had some lunch break time. in that we explored college campus.
