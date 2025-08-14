@@ -50,6 +50,8 @@ Then After break from 12:30 to 1:30 PM there was ID Card formation for Mechanica
 
 ## DAY 6 (07-08-2025)
 From 9:30 to 11:30 AM we Attended our subject Lectures then At 12:30 there was a lecture by Dr. Lakhbir singh khanna (Incharge of CML) in the auditorium.
-After that a lecture by Dr. jasvir Singh grewal started with Soothing keertan and "Mishantri Raag" sung by their students. It calms everyones mind sitting there. As due to shortage of time Sir skipped their Presentation instead they talked openly with us about the importance of NSS which was even more underastandable. Even though itv was less time with them but we liked their way of coveying message. We also listened about them from seniors about their postive attitude and spirtuality. Then their students played a funny short skit which was very enjoyable, the Whole Auditorium laughed and enjoyed their performace.
+After that a lecture by Dr. jasvir Singh grewal started with Soothing keertan and "Mishantri Raag" sung by their students. 
+![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/e192cfa56f1d6d063c29862c5fa9810867edb5b3/20250807_144249.jpg)
+It make calm everyones mind sitting there. As due to shortage of time Sir skipped their Presentation instead they talked openly with us about the importance of NSS which was even more underastandable. Even though itv was less time with them but we liked their way of coveying message. We also listened about them from seniors about their postive attitude and spirtuality. Then their students played a funny short skit which was very enjoyable, the Whole Auditorium laughed and enjoyed their performace.
 
 ## DAY 7 ()
