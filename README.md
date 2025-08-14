@@ -5,7 +5,9 @@ The Induction program started with warm blessings of Almighty.
 #### At 8:30 AM, 
 We all gathered at gurudwara Sahib, students from ME,CE,ECE,EE,RAI Branches have taken blesssings from Sri Guru Granth Sahib Ji and listened to the soothing keertan.
 After Listening to the Hukamnama Sahib, we were offered refreshments till 10:00 AM
-At 11:00 AM we entered Auditorium, the whole Event was managed by the "Causmic Club" of the college. there Dr. Harpreet Kaur Grewal, HoD of Applied Sciences, opened the session with a heartfelt welcome and motivational messages, they motivated us and taught us how to live and enjoy your college life in boundry freedom. they were of positive vibes and open mind. After that
+At 11:00 AM we entered Auditorium, the whole Event was managed by the "Causmic Club" of the college.
+![image Alt] https://github.com/harjotsinghjot/GNDEC-Induction/blob/4fa2d4f26725afa41693c94693bf0d553863967e/Snapchat-249647414.jpg
+There Dr. Harpreet Kaur Grewal, HoD of Applied Sciences, opened the session with a heartfelt welcome and motivational messages, they motivated us and taught us how to live and enjoy your college life in boundry freedom. they were of positive vibes and open mind. After that
 Dr. Sehijpal Singh, Principal of the institute, highlighted GNDEC's academic strengths and the importance of embracing opportunities during college life and then
 The Chief Guest, Maheshinder Singh Grewal, Ex-Cabinet Minister and Senior Trustee of Nankana Sahib Education Trust, inspired students with his words on discipline, purpose, and the founding vision of the college.
 It was a Great event, most appreciation goes to the club members and ground level workers. 
