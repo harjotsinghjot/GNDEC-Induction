@@ -42,7 +42,9 @@ After that from 3:00 to 4:00 PM we attend an expert Lecture by Mrs. Shaffy Makka
 ## DAY 5 (06-08-2025)
 #### At 9:30 AM
 There was a lecture by Dr. Parminder Singh (Dean - Student Welfare) at Auditorium we come to know about college from this session.
-Then from 9:00 to 10:00 AM we atended a wonderful session by Mr. Manpreet Singh on "fitness for engineers". The session was full knowledge about our body fitness, muscle building as well as sports.
+Then from 9:00 to 10:00 AM we atended a wonderful session by Mr. Manpreet Singh on "fitness for engineers". The session was full knowledge about our body fitness, muscle building as well as sports. I personally felt motivated after that lecture as they made some students do pushups at stage.
+![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/54c7f044fa6e32fecd1bd5061af1a36eeafcc7ec/Snapchat-16414278.jpg)
+They told us that our real wealth is healthy body not money.
 Then at 11:00 AM We attended lecture by Brigaider P.S. Cheema about their achievements and NCC.
 Then After break from 12:30 to 1:30 PM there was ID Card formation for Mechanical branch section A.
 
