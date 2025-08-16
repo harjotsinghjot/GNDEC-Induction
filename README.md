@@ -60,6 +60,6 @@ As the day ended with greetings our induction Program was also ending.
 #### It was a Wonderful week for us as we enjoyed a lot of wonderful events and seminars from different clubs, societies as well as respected teams
 #### Then after these days we started attending our classes according to our provided time table. All the Applied Science teachers we met are very supportive and caring nature, we never felt lonely as in most cases whenever we go somewhere for first time we feel lonely but all our teachers and seniors were very supportive to us. 
 ### I personally want to Thankyou them for supporting and caring us this much.
-## THANKYOU 
-### HARJOT SINGH 
-#### Mechanical Engineering 
+### THANKYOU 
+##### Harjot Singh 
+##### Mechanical Engineering 
