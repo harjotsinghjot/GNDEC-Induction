@@ -54,5 +54,12 @@ From 9:30 to 11:30 AM we Attended our subject Lectures then At 12:30 there was a
 After that a lecture by Dr. jasvir Singh grewal started with Soothing keertan and "Mishantri Raag" sung by their students. 
 ![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/e192cfa56f1d6d063c29862c5fa9810867edb5b3/20250807_144249.jpg)
 It make calm everyones mind sitting there. As due to shortage of time Sir skipped their Presentation instead they talked openly with us about the importance of NSS which was even more underastandable. Even though itv was less time with them but we liked their way of coveying message. We also listened about them from seniors about their postive attitude and spirtuality. Then their students played a funny short skit which was very enjoyable, the Whole Auditorium laughed and enjoyed their performace.
+As the day ended with greetings our induction Program was also ending.
 
-
+## Concluding 
+#### It was a Wonderful week for us as we enjoyed a lot of wonderful events and seminars from different clubs, societies as well as respected teams
+#### Then after these days we started attending our classes according to our provided time table. All the Applied Science teachers we met are very supportive and caring nature, we never felt lonely as in most cases whenever we go somewhere for first time we feel lonely but all our teachers and seniors were very supportive to us. 
+### I personally want to Thankyou them for supporting and caring us this much.
+## THANKYOU 
+### HARJOT SINGH 
+#### Mechanical Engineering 
