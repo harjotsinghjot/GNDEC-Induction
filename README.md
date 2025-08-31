@@ -63,7 +63,7 @@ It was a Saturday of week.
 College Has arranged something Knowledgeable for us 
 we arrived at 9:00AM in College Auditorium. There was lecture on Healthy food and our daily routine by Professor From 'Punjab Agricultural University' it was a wonderful session. we learned alot from professor.
 After all that Session by Dr. Jaswinder Singh Started. It was more enjoyable time with them as he is science teacher who love to make students learn science by themselves through his practicals 
-![image alt](
+![image alt](https://github.com/harjotsinghjot/GNDEC-Induction/blob/e61054b572b8cee2b658cfdf9550e9c6d36eb9a4/Snapchat-825784227.jpg)
 
 Session was very creative and wonderful.
 After that there was a lecture by Ms Riya Arora Director of PAM-EX PUNJAB AVGC-XR
