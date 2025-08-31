@@ -23,7 +23,8 @@ I started the second induction day with Guru's blessing from College's gurudwara
 #### At 9:00 AM,
 We attended Lecture by Dr.Priya Darshni Madam On " Universal Human Values" at Auditorium. Madam taught us about the real meaning of happiness in our life which was always ignored in our daily life.
 At 11:00 AM we listened to the Dr. Arvind Dhingra (Director of STEP & Incharge of TAC). It was a great leacture.
-From 12:30 PM to 1:30 PM we Had Lunch break.
+From 12:30 PM to 1:30 PM we Had Lunch break. 
+![image alt](
 After that at 1:30 we had profiency test of English And Mathematics which was conducted by our seniors, our seniors were very supportive and cooperative
 the test goes till 3:30 PM After that we leaved college for homes, and the day ended.
 
